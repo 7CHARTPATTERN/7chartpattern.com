@@ -1,1 +1,1 @@
-# 7chartpattern.com
+# https://www.7chartpattern.com
